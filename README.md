@@ -10,4 +10,4 @@
 - Curious about space science and tech.
 
 ### To reach me
-Please contact me via LinkedIn.
+Please contact me via [LinkedIn](https://www.linkedin.com/in/melindakingsun/).
